@@ -1,0 +1,1 @@
+# Pr-ctica-de-Laboratorio-Estratificaci-n-de-Superficie-Corporal
